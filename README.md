@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aluno0007
-- 👀 I’m interested in futebol e progamaçao
+- 👀 I’m interested in futebol e programaçao
 - 🌱 I’m currently learning aprendedo
 - 💞️ I’m looking to collaborate on com a turma
 - 📫 How to reach me nao chege
